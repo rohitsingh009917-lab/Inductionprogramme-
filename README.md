@@ -60,4 +60,26 @@ After that i went to my bed at 10:00 pm because we have bad electricity connecti
 
 
 # DAY 3
+#Breakfast 
+8:00 to 8:30 am
+I have very light Breakfast which contains Aloo Paratha followed by curd and butter also.
+Then I went to the auditorium at 9:00 am to attend a science session and some life lessons.
+9:30 to 2:30 pm
+We were allotted our respective seats with my fellow CSE mates.Our Chief guest Dr. jaswinder Singh was welcomed by a huge round of applause.
+He delivered one of the finest speeches that i have heard in my life and he was also a very kind hearted person with a lot of knowledge.
+He also explained the experiments with very ease and clearly and he also taught many life lessons.
+Then after our second chief guest arrived in the auditorium Dr. Priya darshani mam who taught us about how to achieve our final destination i.e to be happy in our life.
+She cleared our many doubts about our mindset to achieve our goal.
+After both the speeches of Sir and mam we were quite tired .
+2:30 to 3:30 pm
+Lunch
+I have a very heavy lunch which contains Chapati, rice and rajma with salad.
+Then i take a sleep of one to two hours which makes me feel refreshing.
+5:30 to 8:00 pm
+I studied for next hours, preparing for the proficiency test that will be coming next week.
+l have dinner that contains chapati, vegetable and rasgulla.
+8:00 pm onwards 
+Then i again went to study. I was learning programming language i.e C++ atleast two to three hours.
+Then I finally went to bed at 11:00 pm.
+
 
